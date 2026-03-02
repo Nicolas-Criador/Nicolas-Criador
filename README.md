@@ -2,7 +2,6 @@
 
 - 🎓 Atualmente estudando desenvolvimento de sistemas.
 - 😴 Pronomes: Ele/Dele.
-- 🦞 Lobster.
 - 🦞 contato/gmail: nbarretobuzzin@gmail.com / WhatsApp: +55 47 9109-5825.
 
 
